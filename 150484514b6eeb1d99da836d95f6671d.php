@@ -1,0 +1,1 @@
+CSUC{J4v4Scr1pt_aka_JSFuck}
